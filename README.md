@@ -1,4 +1,4 @@
-!![Example Image](example.png)
+!![Example Image](IMG_8739.gif)
 
 <p align="center"> Aster / Ash . 18 y.o. (Nov 16) . they / he </h1>
 
