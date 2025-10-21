@@ -1,5 +1,5 @@
 
-<p align="center"><img width="385" height="29" scr= ![img 8739 gif](IMG_8739.gif) </p>
+<p align="center"><img width="385" height="29" scr= IMG_8739.gif </p>
 
 <p align="center"> Aster / Ash . 18 y.o. (Nov 16) . they / he </h1>
 
