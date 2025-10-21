@@ -1,6 +1,6 @@
 
 
-![polish save png](polish_save.png)
+![img 8739 gif](IMG_8739.gif)
 
 <p align="center"> Aster / Ash . 18 y.o. (Nov 16) . they / he </p>
 
