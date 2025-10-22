@@ -4,9 +4,10 @@
 
 
 <p align="center"> 
-  Aster.  ﹕  18 y.o. (Nov 16)  ﹕  they / he </h1>
+  Aster　⟢　18 y.o. (Nov 16)　⟢　they / he </h1>
 
-<p align="center"> w2i, i don’t bite.  ﹕  c+h at all times. </p>
+<p align="center">
+  w2i, i don’t bite.　⟢　c+h at all times. </p>
 
 
 <div align="center">
