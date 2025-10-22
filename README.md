@@ -3,7 +3,7 @@
     </div>
 
 
-<p align="center"> Aster ᐟ Ash  ༝  18 y.o. (Nov 16)  ༝  they / he </h1>
+<p align="center"> Aster.  ![](IMG_3759.gif)  18 y.o. (Nov 16)  ![](IMG_3759.gif)  they / he </h1>
 
 <p align="center"> i literally just have this for pt.  ༝  c+h at all times.  ༝  w2i, i don’t bite. </p>
 
