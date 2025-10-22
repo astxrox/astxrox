@@ -1,15 +1,15 @@
 <div align="center">
   
-  ![dc](IMG_8739.gif) ![dc](IMG_3592.gif)
-  
+  ![dc](IMG_8739.gif) ![dc](IMG_3592.gif) ![darling](IMG_3605.gif)
 
-
+<br>
 <p align="center"> 
   𝖺𝗌𝗍𝖾𝗋　◞　𝙩𝙝𝙚𝙮 ⸝ 𝙝𝙚　◞　18 𝗒.𝗈. </h1>
 
 <p align="center">
   𝗐2𝗂𝗇𝗍, 𝖨 𝖽𝗈𝗇’𝗍 𝖻𝗂𝗍𝖾.　◞　𝙘+𝙝 𝙖𝙩 𝙖𝙡𝙡 𝙩𝙞𝙢𝙚𝙨. </p>
 
+<br>
 <div align="center">
   <img src="IMG_8580.gif">
 
