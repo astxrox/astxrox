@@ -8,7 +8,9 @@
 <p align="center"> i literally just have this for pt.  ༝  c+h at all times.  ༝  w2i, i don’t bite. </p>
 
 
-
+<div align="center">
+  <img src= "IMG_8608.png IMG_8601.png IMG_3806.gif IMG_8652.gif IMG_8630.gif IMG_8633.gif IMG_8690.gif IMG_3801.gif IMG_8540.gif IMG_8696.gif IMG_8694.png IMG_8704.gif IMG_8588.gif IMG_8672.gif IMG_8729.gif IMG_8683.gif IMG_8679.gif IMG_8731.gif"
+    </div>
 
 
 
