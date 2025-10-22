@@ -1,6 +1,6 @@
 <div align="center">
-  <img src="IMG_8739.gif"> 
-    </div>
+  ![dc](IMG_8739.gif) ![dc](IMG_3592.gif)
+  
 
 
 <p align="center"> 
