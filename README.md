@@ -14,7 +14,11 @@
   <img src="IMG_8580.gif">
     </div>
 
-![dc](IMG_8530.gif) 𖦹˙— need ⸝ wanna contact me? my dc is: astxrox 
+![dc](IMG_8530.gif) 𖦹˙— 𝗇𝖾𝖾𝖽 ⸝ 𝗐𝖺𝗇𝗇𝖺 𝖼𝗈𝗇𝗍𝖺𝖼𝗍 𝗆𝖾? 𝗆𝗒 𝖽𝖼 𝗂𝗌: 𝖺𝗌𝗍𝗑𝗋𝗈𝗑 
+
+<br>
+<br>
+<br>
 
 <div align="center">
   
