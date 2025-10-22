@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="![](IMG_8739.gif)">
+  <img src="IMG_8739.gif">
     </div>
 
 <p align="center"> Aster ᐟ Ash  ༝  18 y.o. (Nov 16)  ༝  they / he </h1>
