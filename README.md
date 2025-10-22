@@ -19,8 +19,8 @@
 
 ![sp](IMG_3489.gif) 𖦹˙— 𝗐𝗈𝗋𝗄𝗂𝗇𝗀 𝗈𝗇 𝗌𝗍𝗋𝗐𝗉𝗀
 
-![jelly](IMG_8536.gif) ![zzz](IMG_8537.png)
 <br>
+![jelly](IMG_8536.gif) ![zzz](IMG_8537.png)
 <br>
 <br>
 <p align="center"> 𝙘𝙤𝙤𝙡 𝙨𝙝𝙞𝙩 𝙄 𝙡𝙞𝙠𝙚 
