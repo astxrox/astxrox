@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="IMG_8739.gif">
+  <img src="IMG_8739.gif"> 
     </div>
 
 
@@ -9,6 +9,11 @@
 <p align="center">
   w2i, i don’t bite.　◞　c+h at all times. </p>
 
+<div align="center">
+  <img src="IMG_8580.gif">
+    </div>
+
+![dc](IMG_8530.gif) need ⸝ wanna contact me? my dc is 𖦹˙— astxrox 
 
 <div align="center">
   
