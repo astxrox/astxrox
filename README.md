@@ -11,7 +11,7 @@
 
 <br>
 <div align="center">
-  <img src="IMG_8580.gif">
+  <img src="IMG_3759.gif">
 <br>
 <br>
 
@@ -24,8 +24,8 @@
 <br>
 <br>
 <div align="center">
-  <img src="IMG_8580.gif">
-
+  <img src="IMG_3759.gif">
+<br>
 <br> 
 <p align="center"> 𝙘𝙤𝙤𝙡 𝙨𝙝𝙞𝙩 𝙄 𝙡𝙞𝙠𝙚 
 
