@@ -28,7 +28,7 @@
   <img src="IMG_3759.gif">
 <br>
 <br> 
-<p align="center"> 𝙘𝙤𝙤𝙡 𝙨𝙝𝙞𝙩 𝙄 𝙡𝙞𝙠𝙚 
+<p align="center"> ٠࣪✦ 𝙘𝙤𝙤𝙡 𝙨𝙝𝙞𝙩 𝙄 𝙡𝙞𝙠𝙚 ↓
 
 <div align="center">
   
