@@ -16,7 +16,7 @@
 
 ![dc](IMG_8530.gif) 𖦹˙— 𝖽𝖼: 𝖺𝗌𝗍𝗑𝗋𝗈𝗑 
 
-![sp](IMG_3756.gif) 𖦹˙— (https://astxrox.straw.page)
+![sp](IMG_3756.gif) 𖦹˙—   https://astxrox.straw.page
 <br>
 <br>
 ![jelly](IMG_8536.gif) ![zzz](IMG_8537.png)
